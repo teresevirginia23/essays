@@ -1,2 +1,0 @@
-# essays
-Juncture visual essays
